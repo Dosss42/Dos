@@ -1,6 +1,6 @@
 DOS
 
-**`Digital Craftsman (Developer/Filmmaker/Creator)`**
+**`(Future Developer/Filmmaker/Editor)`**
 
 I'm an pogi.
 
